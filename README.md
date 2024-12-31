@@ -1,5 +1,5 @@
 # green
-# :sparkles::sparkles:绿色小导航 2025最新地址发布页:sparkles::sparkles:
+# :sparkles::sparkles:绿色小导航 2025最新回家地址:sparkles::sparkles:
  :point_right: 【最新地址一】 ：xd.smxd05.cc/shenmi
  ------
  :point_right: 【最新地址二】 ：xd.smxd04.cc/shenmi
@@ -21,4 +21,4 @@
 #### :sparkles:重要提醒:sparkles:收藏本页面，避免迷路！
 #### :近期部分国产浏览器屏蔽网址，推荐使用Chrome谷歌浏览器、Edge浏览器访问，苹果使用自带浏览safari。
 --
-绿色小导航 2025最新地址发布页
+绿色小导航 2025最新回家地址
